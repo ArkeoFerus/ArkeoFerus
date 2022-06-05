@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @ArkeoFerus
+- 👋 Hi, I’m @ArkeoFerus and I think different!
